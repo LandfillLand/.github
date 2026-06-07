@@ -4,6 +4,9 @@
 
 #
 
+> [!IMPORTANT]
+> The following content is purely fictional and does not reflect any real-world situations, views, or attitudes.
+
 No one remembers the moment LandfillLand came into being.
 
 There was no thunder, no collapse of stars, no final word spoken by a god.
